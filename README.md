@@ -1,2 +1,2 @@
 # mehmetorhandal.github.com
-deneme
+deneme yapıyorum bir bak bakalım 
